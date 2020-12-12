@@ -1,0 +1,2 @@
+Boil the oven upto 230 degree celsius, stir the flour and make a circle and add yeast,spread the sauce over that, now add vegetables like capsicum,onion,tomato, at last add cheese to it..
+And it's done
